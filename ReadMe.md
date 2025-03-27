@@ -1,5 +1,5 @@
 # 💫 About Me:
-Having more then 7+ years of experience with JavaScript commercial development. Strictly follow the requirements, meet the deadlines, and always online to chat. Fully focused on work to deliver on time without compromising quality.
+Having more then 8+ years of experience with JavaScript commercial development. Strictly follow the requirements, meet the deadlines, and always online to chat. Fully focused on work to deliver on time without compromising quality.
 
 
 ## 🌐 Socials:
